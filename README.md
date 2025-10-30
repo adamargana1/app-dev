@@ -46,6 +46,6 @@ Task List
 
  Watch the sequel (hopefully someday!)
 
-🧠 Footnote
+Footnote
 
 This movie shows how technology and humanity can coexist beautifully.
